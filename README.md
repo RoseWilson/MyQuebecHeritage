@@ -1,6 +1,8 @@
 # My Quebec Herritage
 In the mid to late 1800s, thousands of Quebec citizens immigrated to the United States. Why did they leave Quebec? What opportunities did they encounter in the United States, specifically in New York? What did they do when they came to New York? Using historical records and family memories, I traced back my Franco-American Roots. 
+
 This is constant work in progress to connect the dots of history
+
 If you have any corrections or want to add a story please reach out to me at roseobsydian@gmail.com
 
 ## General Quebec Immigration to New York:
@@ -16,7 +18,7 @@ Some French-Canadians arrived later in the 1880s-1900s because the neighborhoods
 ### Faith and Education?
 French Canadians were devout Catholics and even when arriving in Cohoes, many maintained their faith. The first mass was held in 1847 and the first French Catholic Church was built in 1869(st josephs). Schooling was also associated with the church with nuns teaching children in their native French language. 
 ### Were they accepted in the USA?
-French-Canadian immigrants were very loyal to their language and faith and therefore did not assimilate into “American” culture. They maintained their towns and families very closely. This refusal to assimilate angered some Americans which led to discrimination of the Franco-Americans. However, those in my particular family never talked about any discrimination that they may have faced because they were mainly focused on their tight-knit community and very stubborn in not caring about what outsiders thought.
+French-Canadian immigrants were very loyal to their language and faith and therefore did not assimilate into “American” culture. They maintained their towns and families very closely. This refusal to assimilate angered some Americans which led to discrimination of the Franco-Americans (Lacoursiere 122) . However, those in my particular family never talked about any discrimination that they may have faced because they were mainly focused on their tight-knit community and very stubborn in not caring about what outsiders thought.
 
 ## Eugenie Therriault (1881-1948)
 Eugenie was my Nana's Grandmother, aka my great-great-grandmother, aka my dad's mom's dad's mom. Eugenie’s father was Joseph Therriault and they lived in Kamouraska, Quebec, Canada. Eugenie and her parents immigrated when she was 7 years old (1887). 
@@ -62,3 +64,20 @@ Home: 108 maple ave, Cohoes, NY
 Buried: Saint Josephs Cemetery, Waterford,
 
 
+
+## Citation:
+
+http://www.albanycountyhistory.org/images/uploads/pdfs/SC_church_tour_brochure.pdf
+
+https://www.stmichaelsofcohoes.org/stjosephs.pdf
+
+Lacoursiere, Jacques. *A People's History of Quebec.* Translated by Robin Philpot, Baraka Books, 1992.
+
+Nadeau, Anne M. "The History of St. Marie’s Parish and Schools." *http://www.spindlecity.net/* , Spindle City Historic Society, 2004, www.spindlecity.net/The%20History%20of%20StMaries.pdf.
+
+Siena College. *Je Me Souviens...I Remember: Presenting and Preserving the Heritage of Upstate New York's Franco-American Communities*, New York Heritage, 2020, nyheritage.org/collections/je-me-souviensi-remember-presenting-and-preserving-heritage-upstate-new-yorks-franco.
+
+
+A special thank you to Peg Wilson, Tim Donnelly, Tim Wilson, and David Wilson for sharing their stories and guiding me on my search for our roots.
+
+A huge thank you my Professor for guiding me and providing me with many resources.
