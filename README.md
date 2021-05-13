@@ -51,6 +51,8 @@ Based on family stories, Marie Rose was very stubborn (must be genetic). she ado
 home: 200 Dartmouth Street, Cohoes
 
 Buried: Saint Josephs Cemetery, Waterford
+
+![Marie Rose's Grave, inscribed Harold J Wilson, 1909 to 1972, his wife, Marie Rose Charbonneau, 1907-1989](/QuebecImages/MarieGrave.jpg)
  
 ## Harold Wilson (1909-1972)
 Harold is my Great-Grandfather; my dad’s dad’s dad. His parents were Lena Mousseau and Henry Wilson, however he was raised by Lena’s parents, Napoleon Mousseau and Mary Fontain.  Napoleon and Mary immigrated in 1894 from Montreal, Canada. 
