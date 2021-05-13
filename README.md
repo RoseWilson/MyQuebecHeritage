@@ -21,7 +21,7 @@ French Canadians were devout Catholics and even when arriving in Cohoes, many ma
 French-Canadian immigrants were very loyal to their language and faith and therefore did not assimilate into “American” culture. They maintained their towns and families very closely. This refusal to assimilate angered some Americans which led to discrimination of the Franco-Americans (Lacoursiere 122) . However, those in my particular family never talked about any discrimination that they may have faced because they were mainly focused on their tight-knit community and very stubborn in not caring about what outsiders thought.
 
 ## Eugenie Therriault (1881-1948)
-Eugenie was my Nana's Grandmother, aka my great-great-grandmother, aka my dad's mom's dad's mom. Eugenie’s father was Joseph Therriault and they lived in Kamouraska, Quebec, Canada. Eugenie and her parents immigrated when she was 7 years old (1887). 
+Eugenie was my Nana's Grandmother, aka my great-great-grandmother, aka my dad's mom's dad's mom, aka Mimere (Grandma). Eugenie’s father was Joseph Therriault and they lived in Kamouraska, Quebec, Canada. Eugenie and her parents immigrated when she was 7 years old (1887). 
 
 They immigrated to Cohoes because of the onset of a recession in Quebec and the news of opportunity within New York. (Joseph’s job is currently unknown to me) They did earn enough to drive back up to Quebec to visit family. Eugenie also did have up to an 8th-grade education and most likely went to Saint Joseph’s School. This ties into the fact that many Franco-American children attended Catholic schools. Eugenie’s brother, Joe Therriault became a barber and lived at 108 Simmons ave, Cohoes
 
