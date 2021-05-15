@@ -11,8 +11,8 @@ Sometimes people left Quebec to find new opportunities in the United States, pre
 New England states were having an industrial boom in which immigrants could earn wages all year round rather than only seasonally from their farms. This led to an initial excitement to work in the United States. However, as you will see from my family’s examples it was a deeply personal choice to leave their homes to start new. 
 
 Also, immigration did not necessarily mean Canada was closed off forever. Some would travel back and visit family.
-![Eugenie Dressed for travel](/QuebecImages/EugenieQuebec)
-Eugenie dressed up for travel home
+![Eugenie Dressed for travel](/QuebecImages/EugenieQuebec.jpg)
+Eugenie dressed up for travel to Quebec
 
 ### Why Cohoes?
 Cohoes was a particularly great place to call home in the 1860s because of the textile industry, particularly Harmony Mills. Men, women, and children all worked in these factories to earn a living. Working conditions were dangerous and hours were long but overall the steady pay was an important motivator. Some might even say that the factories exploited the immigrants’ eagerness to work.
@@ -33,13 +33,14 @@ Right: Cohoes French Club, The Venue, what used to be Saint Joseph's Church.
 
 They immigrated to Cohoes because of the onset of a recession in Quebec and the news of opportunity within New York. (Joseph’s job is currently unknown to me) They did earn enough to drive back up to Quebec to visit family. Eugenie also did have up to an 8th-grade education and most likely went to Saint Joseph’s School. This ties into the fact that many Franco-American children attended Catholic schools. Eugenie’s brother, Joe Therriault became a barber and lived at 108 Simmons ave, Cohoes
 
-![Barber Shop now](/QuebecImages/ETherriaultBarberHouse.jpg)
 ![Barbershop then](/QuebecImages/ETherriaultBarber.jpg)
+![Barber Shop now](/QuebecImages/ETherriaultBarberHouse.jpg)
 The Barber shop then and now
 
 Eugenie married Thomas Lionel Donnelly, whose parents were Irish immigrants. While throughout some history there has been animosity between the Irish and French-Canadian immigrants, particularly in Canada, it was actually quite common for Franco-Irish marriages. This was mainly because of their shared devotion to Chatholicism. 
 
 home in 1930: cohoes ward 3, congress street
+
 ![Eugenie and her family on their stoop](/QuebecImages/EugenieStoop.jpg)
 Eugenie and her family on their stoop.
 
@@ -66,7 +67,6 @@ Napoleon’s children, particularly my Great Grandmother, Marie Rose Charbonneau
 
 ![Saint Marie's School when it was first built](/QuebecImages/OldStMarie.jpg)
 ![Holy Trinity Parish Center, where the Saint Marie School used to be](/QuebecImages/StMarieSchool.jpg)
-
 Left: Saint Marie's School when Marie Rose attended 
 Right: Holy Trinity Parish Center where Saint Marie's School used to be
 
@@ -80,7 +80,6 @@ Based on family stories, Marie Rose was very stubborn (must be genetic). she ado
 home: 200 Dartmouth Street, Cohoes
 
 ![Marie Rose's Home 2021](/QuebecImages/MarieHome.jpg)
-
 I would love an image from when Marie Rose lived there.
 
 
@@ -101,6 +100,7 @@ Napoleon was a carpenter and in 1900 their teenage children would work in the mi
 They lived “on the island” another Franco-American neighborhood within Cohoes. Again we see that Napoleon and Celia had many children while Harold and Marie Rose only had three.
  
 Home: 108 maple ave, Cohoes, NY
+
 ![Mousseau's Home 2021](/QuebecImages/MousseauHome.jpg)
 Mousseau's home in 2021, would love a picture of the home when they lived there.
  
