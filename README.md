@@ -49,13 +49,15 @@ Something interesting to note is that Napoleon and Celia had many children which
 
 Based on family stories, Marie Rose was very stubborn (must be genetic). she adored her kids and grandkids. She was terrible at cooking meat, but no one would ever dare tell her that. Lastly, she loved quilting and kntitting which has also been continued in my family. 
 home: 200 Dartmouth Street, Cohoes
+![Marie Rose's Home 2021](/QuebecImages/MarieHome.jpg)
+*I would love an image from when Marie Rose lived there.* 
+
 
 Buried: Saint Josephs Cemetery, Waterford
 
 ![Marie Rose's Grave, inscribed Harold J Wilson, 1909 to 1972, his wife, Marie Rose Charbonneau, 1907-1989](/QuebecImages/MarieGrave.jpg)
 ![Other Side of Marie Rose's Grave, Inscribed Wilson, Say Hail Mary with hands praying surrounded by flowers](/QuebecImages/WilsonGrave.jpg)
-Something interesting to note is that Marie Rose maintained her miaden name on her gravestone.
-Something interesting to note is that Marie Rose maintained her miaden name on her gravestone.
+*Something interesting to note is that Marie Rose maintained her miaden name on her gravestone.*
 
 ## Harold Wilson (1909-1972)
 Harold is my Great-Grandfather; my dad’s dad’s dad. His parents were Lena Mousseau and Henry Wilson, however he was raised by Lena’s parents, Napoleon Mousseau and Mary Fontain.  Napoleon and Mary immigrated in 1894 from Montreal, Canada. 
