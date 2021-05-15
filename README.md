@@ -48,8 +48,11 @@ Napoleon’s children, particularly my Great Grandmother, Marie Rose Charbonneau
 Something interesting to note is that Napoleon and Celia had many children which was the tradition of the time since many children were needed for population growth. However, Marie Rose only had 3 children which shows the change in ideology of not needing to have as many children.
 
 Based on family stories, Marie Rose was very stubborn (must be genetic). she adored her kids and grandkids. She was terrible at cooking meat, but no one would ever dare tell her that. Lastly, she loved quilting and kntitting which has also been continued in my family. 
+
 home: 200 Dartmouth Street, Cohoes
+
 ![Marie Rose's Home 2021](/QuebecImages/MarieHome.jpg)
+
 *I would love an image from when Marie Rose lived there.* 
 
 
