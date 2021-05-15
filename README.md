@@ -11,6 +11,9 @@ Sometimes people left Quebec to find new opportunities in the United States, pre
 New England states were having an industrial boom in which immigrants could earn wages all year round rather than only seasonally from their farms. This led to an initial excitement to work in the United States. However, as you will see from my family’s examples it was a deeply personal choice to leave their homes to start new. 
 
 Also, immigration did not necessarily mean Canada was closed off forever. Some would travel back and visit family.
+![Eugenie Dressed for travel](/QuebecImages/EugenieQuebec)
+Eugenie dressed up for travel home
+
 ### Why Cohoes?
 Cohoes was a particularly great place to call home in the 1860s because of the textile industry, particularly Harmony Mills. Men, women, and children all worked in these factories to earn a living. Working conditions were dangerous and hours were long but overall the steady pay was an important motivator. Some might even say that the factories exploited the immigrants’ eagerness to work.
 
@@ -23,17 +26,33 @@ French-Canadian immigrants were very loyal to their language and faith and there
 ## Eugenie Therriault (1881-1948)
 Eugenie was my Nana's Grandmother, aka my great-great-grandmother, aka my dad's mom's dad's mom, aka Mimere (Grandma). Eugenie’s father was Joseph Therriault and they lived in Kamouraska, Quebec, Canada. Eugenie and her parents immigrated when she was 7 years old (1887). 
 
+![Saint Joseph's School then](/QuebecImages/StJosephSchool.jpg)
+![Cohoes French Club](/QuebecImages/CohoesFrenchClub.jpg)
+Left: Saint Joseph's School
+Right: Cohoes French Club, The Venue, what used to be Saint Joseph's Church.
+
 They immigrated to Cohoes because of the onset of a recession in Quebec and the news of opportunity within New York. (Joseph’s job is currently unknown to me) They did earn enough to drive back up to Quebec to visit family. Eugenie also did have up to an 8th-grade education and most likely went to Saint Joseph’s School. This ties into the fact that many Franco-American children attended Catholic schools. Eugenie’s brother, Joe Therriault became a barber and lived at 108 Simmons ave, Cohoes
+
+![Barber Shop now](/QuebecImages/ETherriaultBarberHouse.jpg)
+![Barbershop then](/QuebecImages/ETherriaultBarber.jpg)
+The Barber shop then and now
 
 Eugenie married Thomas Lionel Donnelly, whose parents were Irish immigrants. While throughout some history there has been animosity between the Irish and French-Canadian immigrants, particularly in Canada, it was actually quite common for Franco-Irish marriages. This was mainly because of their shared devotion to Chatholicism. 
 
 home in 1930: cohoes ward 3, congress street
+![Eugenie and her family on their stoop](/QuebecImages/EugenieStoop.jpg)
+Eugenie and her family on their stoop.
+
 
 home in 1940: cohoes ward 4, Mechanic Street
 
 Eugenie became a housewife and had two children, William and John, while her husband was a truck driver for a meat packing company. A final interesting note is that on every census that was filled out, she wrote Candadian French. At that point Canada had long been united but it shows her strong will to maintain her French Herritige. 
 
 buried: Saint Agnes Cemetary
+
+![Eugenie's Grave](/QuebecImages/EugenieGrave.jpg)
+![Eugenie's Husband's Grave](/QuebecImages/EugenieHusbandGrave.jpg)
+Eugenie and her husband's graves side by side
 
 ## Napoleon "Paul" Charbonneau (1882-1945)
 Napoleon was my Papa’s Grandfather, aka my Great- Great Grandfather, aka my dad's dad's mom's dad. Him and his wife, Celia, lived in Trois-Rivieres, Quebec, Canada. Celia never spoke any english, only French. They immigrated to Cohoes in 1907 with their first daughter, Marie Rose, being born shortly after. They did not talk about why specifically they immigrated. Although he was able to find work by working for Waterworks for the City.
@@ -46,10 +65,9 @@ Marie Rose was one of Napoleon’s many children. She is my Great Grandmother, m
 Napoleon’s children, particularly my Great Grandmother, Marie Rose Charbonneau was able to attend school at Saint Marie’s. 
 
 ![Saint Marie's School when it was first built](/QuebecImages/OldStMarie.jpg)
-![Holy Trinity Parish Center, where the Saint Marie School used to be](/QuebecImages/StMarieSchool)
+![Holy Trinity Parish Center, where the Saint Marie School used to be](/QuebecImages/StMarieSchool.jpg)
 
 Left: Saint Marie's School when Marie Rose attended 
-
 Right: Holy Trinity Parish Center where Saint Marie's School used to be
 
 Before marriage in 1931, she worked in a shirt factory as a machine operator. According to family stories, she only worked before marriage and then once married to Harold Wilson she stayed a housewife. However, according to the 1940 New York Census, she still worked a few weeks in the shirt factory. It is possible that there could have been a miscommunication with the census worker or that she did indeed work occasionally for some extra money. 
@@ -73,15 +91,20 @@ Buried: Saint Josephs Cemetery, Waterford
 Something interesting to note is that Marie Rose maintained her miaden name on her gravestone.
 
 ## Harold Wilson (1909-1972)
-Harold is my Great-Grandfather; my dad’s dad’s dad. His parents were Lena Mousseau and Henry Wilson, however he was raised by Lena’s parents, Napoleon Mousseau and Mary Fontain.  Napoleon and Mary immigrated in 1894 from Montreal, Canada. 
+Harold is my Great-Grandfather; my dad’s dad’s dad. His parents were Lena Mousseau and Henry Wilson, however he was raised by Lena’s parents, Napoleon Mousseau and Mary Fontain. Napoleon and Mary immigrated in 1894 from Montreal, Canada. Therefore, while having the Wilson name, he was raised by French-Canadian immigrants. 
+
+![Sacred Heart Church with the sun showing through from behind the building](/QuebecImages/SacredHeart.jpg)
+Sacred Hearch Church, the main Catholic church on the island.
 
 Napoleon was a carpenter and in 1900 their teenage children would work in the mills. Once those older siblings became adults, based on the 1910 census, they were a blacksmith, painter, and operator at a lace mill. The children no longer needed to work or if they did, it was not included on the census.
 
 They lived “on the island” another Franco-American neighborhood within Cohoes. Again we see that Napoleon and Celia had many children while Harold and Marie Rose only had three.
  
 Home: 108 maple ave, Cohoes, NY
+![Mousseau's Home 2021](/QuebecImages/MousseauHome.jpg)
+Mousseau's home in 2021, would love a picture of the home when they lived there.
  
-Buried: Saint Josephs Cemetery, Waterford,
+Buried: Saint Josephs Cemetery, Waterford
 
 
 
