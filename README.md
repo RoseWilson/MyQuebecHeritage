@@ -43,15 +43,26 @@ Home:  253 Vliet Street in Cohoes, New York
 ### Marie Rose Charbonneau (1907-1989)
 Marie Rose was one of Napoleon’s many children. She is my Great Grandmother, my dad’s dad’s mom.
 
-Napoleon’s children, particularly my Great Grandmother, Marie Rose Charbonneau was able to attend school at Saint Marie’s. Before marriage in 1931, she worked in a shirt factory as a machine operator. According to family stories, she only worked before marriage and then once married to Harold Wilson she stayed a housewife. However, according to the 1940 New York Census, she still worked a few weeks in the shirt factory. It is possible that there could have been a miscommunication with the census worker or that she did indeed work occasionally for some extra money. 
+Napoleon’s children, particularly my Great Grandmother, Marie Rose Charbonneau was able to attend school at Saint Marie’s. 
+
+![Saint Marie's School when it was first built](/QuebecImages/OldStMarie.jpg)
+![Holy Trinity Parish Center, where the Saint Marie School used to be](/QuebecImages/StMarieSchool)
+
+Left: Saint Marie's School when Marie Rose attended 
+
+Right: Holy Trinity Parish Center where Saint Marie's School used to be
+
+Before marriage in 1931, she worked in a shirt factory as a machine operator. According to family stories, she only worked before marriage and then once married to Harold Wilson she stayed a housewife. However, according to the 1940 New York Census, she still worked a few weeks in the shirt factory. It is possible that there could have been a miscommunication with the census worker or that she did indeed work occasionally for some extra money. 
 
 Something interesting to note is that Napoleon and Celia had many children which was the tradition of the time since many children were needed for population growth. However, Marie Rose only had 3 children which shows the change in ideology of not needing to have as many children.
+
 
 Based on family stories, Marie Rose was very stubborn (must be genetic). she adored her kids and grandkids. She was terrible at cooking meat, but no one would ever dare tell her that. Lastly, she loved quilting and kntitting which has also been continued in my family. 
 
 home: 200 Dartmouth Street, Cohoes
 
 ![Marie Rose's Home 2021](/QuebecImages/MarieHome.jpg)
+
 I would love an image from when Marie Rose lived there.
 
 
