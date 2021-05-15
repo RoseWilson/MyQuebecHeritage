@@ -11,6 +11,7 @@ Sometimes people left Quebec to find new opportunities in the United States, pre
 New England states were having an industrial boom in which immigrants could earn wages all year round rather than only seasonally from their farms. This led to an initial excitement to work in the United States. However, as you will see from my family’s examples it was a deeply personal choice to leave their homes to start new. 
 
 Also, immigration did not necessarily mean Canada was closed off forever. Some would travel back and visit family.
+
 ![Eugenie Dressed for travel](/QuebecImages/EugenieQuebec.jpg)
 Eugenie dressed up for travel to Quebec
 
@@ -46,6 +47,9 @@ Eugenie and her family on their stoop.
 
 
 home in 1940: cohoes ward 4, Mechanic Street
+
+![Eugenie standing behind her dog sittingi in a chair](/QuebecImages/EugenieDog.jpg)
+Eugenie with her Chow Chow
 
 Eugenie became a housewife and had two children, William and John, while her husband was a truck driver for a meat packing company. A final interesting note is that on every census that was filled out, she wrote Candadian French. At that point Canada had long been united but it shows her strong will to maintain her French Herritige. 
 
